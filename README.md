@@ -4,7 +4,7 @@ OSGBLab
 微信公众号: OSGBLab  
 微信号: OSGBLab  
 软件下载地址：  
-百度网盘：https://pan.baidu.com/s/1KdH2QQwaLBloXA66_xgcxQ    
+http://www.osgblab.com  
 提取码:1234  
 软件介绍：
 ----------------------------------------------------------------------
